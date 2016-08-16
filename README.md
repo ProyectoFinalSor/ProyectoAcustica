@@ -1,3 +1,3 @@
 # ProyectoAcustica
-Esto es un archivo que debe leerse
+Tamo' trabajando mi hermanito!!
 ProyectoAcustica
